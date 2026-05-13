@@ -1,4 +1,4 @@
-# 
+# Final Cut Pro for macOS professional Filter: reverb & motion-tracking offers the most advanced Final Cut Pro for macOS filter, with reverb and motion-tracking. Ideal for
 
 
 
